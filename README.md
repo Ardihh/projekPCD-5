@@ -1,1 +1,6 @@
-# projekPCD-5
+# KLASIFIKASI KULIT NORMAL VS BERMASALAH
+Nama Anggota
+M. Rizki Juniardi : F1D02310074
+b
+c
+d
