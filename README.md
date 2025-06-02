@@ -1,6 +1,6 @@
 # KLASIFIKASI KULIT NORMAL VS BERMASALAH
 Nama Anggota
 M. Rizki Juniardi : F1D02310074
-b
+Nurmiftah Azis    : F1D02310086
 c
 d
